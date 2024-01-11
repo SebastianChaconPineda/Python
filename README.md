@@ -58,6 +58,6 @@ While these projects represent my current skill set, I am committed to continuou
 
 Contact Information
 
-If you're interested in discussing potential collaborations or job opportunities, please don't hesitate to reach out. You can contact me via email at [sebaschacon10@gmail.com]. Connect with me on [LinkedIn](https://www.linkedin.com/in/sebaschacon/) for further insights into my professional background.
+If you're interested in discussing potential collaborations or job opportunities, please don't hesitate to reach out. You can contact me via email at sebaschacon10@gmail.com. Connect with me on [LinkedIn](https://www.linkedin.com/in/sebaschacon/) for further insights into my professional background.
 
 Thank you for visiting my portfolio!
